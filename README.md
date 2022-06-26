@@ -35,6 +35,7 @@ Eu sou o Lucas Leite, estudante do curso de Engenharia da computação na Univer
 
 ### Experiência com Startups
 
+https://diariodonordeste.verdesmares.com.br/regiao/jovens-usam-ferramentas-digitais-para-abrir-negocios-1.1610896
 https://www.oxereta.com/noticia-1474132023-jovens-usam-ferramentas-digitais-para-abrir-negocios
 
 ## Resumo:
